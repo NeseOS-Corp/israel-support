@@ -9,3 +9,5 @@ Here's the reasons:
 
 
 **NOTE:** We'll continue to support Israel forever #ANTIPALESTINE #NOPALESTINE!
+
+**NOTE 2:** NeseOS does not fringe. If someone says "fringe", they're Palestinian dog!
